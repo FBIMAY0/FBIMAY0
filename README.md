@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on HGS Launcher with @moyujunaimoyu
 - 📫 How to reach me: ender_dragon666@163.com
 - 😄 Pronouns: He/him
-- ⚡ Fun fact: The name FBIMAY0 is similar to a Japanese musician EBIMAYO. BUT I'm not EBIMAYO. I'm only one of his fans.
+- ⚡ Fun fact: The name FBIMAY0 is similar to a Japanese musician EBIMAYO. **BUT** I'm not EBIMAYO. I'm only one of his fans.
 
 <!---
 FBIMAY0/FBIMAY0 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
