@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @FBIMAY0
-- 👀 I’m interested in rhythm games, Genshin, Starrail, Portal
-- 🌱 I’m currently learning how to make better Arcaea charts
-- 💞️ I’m looking to collaborate on HGS Launcher with @moyujunaimoyu
-- 📫 How to reach me: ender_dragon666@163.com
+- 👀 I’m interested in rhythm games, *Genshin Impact*, *Honkai Starrail*, *Portal* and *Minecraft*
+- 🌱 I’m currently learning how to make better *Arcaea* charts
+- 💞️ I’m looking to collaborate on HGS Launcher with *@moyujunaimoyu*
+- 📫 How to reach me: *ender_dragon666@163.com*
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: The name FBIMAY0 is similar to a Japanese musician EBIMAYO. **BUT** I'm not EBIMAYO. I'm only one of his fans.
 
